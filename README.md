@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Aspiring Data Scientist | Machine Learning Enthusiast | AI & GenAI Developer📍 Jabalpur, Madhya Pradesh, India📧 Email: shardgupta65@gmail.com🔗 LinkedIn: Sharad Gupta🔗 GitHub: Sharadgup📞 Mobile: +91-9617173355
+🚀 AI Engineer | Machine Learning Enthusiast | AI & GenAI Developer📍 Jabalpur, Madhya Pradesh, India📧 Email: shardgupta65@gmail.com🔗 LinkedIn: Sharad Gupta🔗 GitHub: Sharadgup📞 Mobile: +91-9617173355
 
 
 ## 🌐 Socials:
